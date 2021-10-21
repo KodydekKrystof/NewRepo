@@ -1,4 +1,4 @@
-# Kryštof
-## Kodydek
-readme file
+# Kryštof Kodydek
+## readme file
+
 nově vytvořený depositář
