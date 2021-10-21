@@ -1,4 +1,4 @@
-# Kryštof
-## Hustı
+# KryÅ¡tof
+## Kodydek
 readme file
-novì vytvoøenı depositáø
+novÄ› vytvoÅ™enÃ½ depositÃ¡Å™
