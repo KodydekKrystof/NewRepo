@@ -1,0 +1,4 @@
+# Kryštof
+## Hustý
+readme file
+novì vytvoøený depositáø
